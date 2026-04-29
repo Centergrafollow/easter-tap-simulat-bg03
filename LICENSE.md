@@ -1,4 +1,4 @@
-
+Experience easter tap simulator like never before with easter tap simulator Scripts ultimate, the #1 Script. Includes auto-heal and auto-farm for
 
 
 
